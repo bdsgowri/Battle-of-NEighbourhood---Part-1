@@ -1,1 +1,1 @@
-# Battle-of-NEighbourhood---Part-1
+# Battle-of-Neighbourhood---Part-1
